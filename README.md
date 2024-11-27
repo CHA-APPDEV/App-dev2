@@ -21,4 +21,4 @@ You’ve definitely heard their songs even if you haven’t heard of their names
 These actors include Hugh Jackman (P.T. Barnum), Michelle Williams (Charity Barnum), Keala Settle (Lettie Lutz, bearded lady), Austyn Johnson (Caroline Barnum), Will Swenson (Philo Barnum, P.T’s father), Byron Jennings (Mr. Carlyle, Phillip’s father) and Eric Anderson (Mr. O’Malley).
 
 
-	![alt text](TGS.jpg)
+	![alt text](https://th.bing.com/th/id/OIP.5JgwKdhWnZup2-cZaCXt5QAAAA?rs=1&pid=ImgDetMain)
