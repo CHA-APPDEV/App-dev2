@@ -1,5 +1,7 @@
 # App-dev2
 
+![alt text](https://www.tvguide.com/a/img/catalog/provider/1/2/1-9706456850.jpg)
+
 ### GENRE : MUSICAL & DRAMA 
 
 ### RELEASE DATE :  2017-12-20
@@ -15,10 +17,11 @@
 
 You’ve definitely heard their songs even if you haven’t heard of their names before! In addition to writing for The Greatest Showman, Pasek and Paul alo wrote music and lyrics for Broadway musicals Dear Evan Hansen and A Christmas Story: The Musical, as well as off-Broadway musical Dogfight. Their talent doesn’t stop there, though; they also wrote lyrics for songs in the movie La La Land and a song for the movie Trolls. The craziest part is that they’re only 32 and 33!
 
- 2. Seven of the movie’s leading and supporting actors have backgrounds as successful Broadway performers.
+2. Seven of the movie’s leading and supporting actors have backgrounds as successful Broadway performers.
 
 
 These actors include Hugh Jackman (P.T. Barnum), Michelle Williams (Charity Barnum), Keala Settle (Lettie Lutz, bearded lady), Austyn Johnson (Caroline Barnum), Will Swenson (Philo Barnum, P.T’s father), Byron Jennings (Mr. Carlyle, Phillip’s father) and Eric Anderson (Mr. O’Malley).
 
 
-	![alt text](TGS.jpg)
+![alt text](https://media.tenor.com/K6JswdL0VoQAAAAC/the-greatest-showman-the-greatest-showman-movie.gif)
+
